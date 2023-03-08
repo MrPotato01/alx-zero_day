@@ -1,2 +1,2 @@
 GG UPDATE has been done:
-NEVER GIVE UP MFS
+NEVER GIVE UP MFSs
